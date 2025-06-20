@@ -1,0 +1,1 @@
+Soy pasante de la carrera de Sistemas Computacionales. Me especializo en programación, redes y mantenimiento de hardware. Me considero una persona responsable, paciente y con ética profesional. Habilidades 
